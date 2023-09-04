@@ -1,3 +1,4 @@
 # Paralax_Website_html-css
 
-![ezgif com-gif-maker](https://github.com/cihanbagriyanik/Paralax_Website_html-css/assets/132518854/27d30ad8-da40-46ff-a94f-2cce599cdb44)
+![ezgif com-gif-maker](https://github.com/cihanbagriyanik/Paralax_Website_html-css/assets/132518854/687fb7e0-12f5-47a8-b018-52d6d079d138)
+
